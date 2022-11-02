@@ -1,0 +1,1 @@
+# newtimemagaazine.github.io
